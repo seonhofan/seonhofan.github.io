@@ -1,1 +1,0 @@
-# seonhofan.github.io
